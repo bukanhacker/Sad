@@ -1,6 +1,6 @@
-#HARGAI YANG BUAT:)
-#Maaf Apabila Di SCnya Ada Kata-Kata Kasar
-#SUBSCRIBE CHANNEL Bukan Hacker
-#BILA MAU BERTANYA KUNJUGI SOSMED IG:@x.x.zidanali.x.x
-#TEAM G4BUT TEAM 
-#THANKS TO ./Z1233
+*HARGAI YANG BUAT:)
+*Maaf Apabila Di SCnya Ada Kata-Kata Kasar
+*SUBSCRIBE CHANNEL Bukan Hacker
+*BILA MAU BERTANYA KUNJUGI SOSMED IG:@x.x.zidanali.x.x
+*TEAM G4BUT TEAM
+*THANKS TO ./Z1233
